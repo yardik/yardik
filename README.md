@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @yardik
+- 👀 I’m interested in all things gaming, ai, programming.
+- 💞️ I’m looking to collaborate on pretty much anything.
